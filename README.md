@@ -2,4 +2,4 @@
 
 
 
-Play this game a score https://azmeerabhagyasree.github.io/hit_me/  the highest if you can
+Play this game  https://azmeerabhagyasree.github.io/hit_me/  and score the highest if you can.
